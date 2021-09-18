@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...Robotics Proccess Automation
 - 💞️ I’m looking to collaborate on ...AI engineers who are working in medical fields to improve future health care
 - 📫 How to reach me ...
-Linkdin account : https://www.linkedin.com/in/samin-yasar-saadat-7188471aa/
+Linkdin account : https://www.linkedin.com/in/md-samin-yasar-saadat-6406181a6/
 
 
 
